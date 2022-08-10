@@ -3,12 +3,16 @@
 
 
 共享账号：shadows01@appleshare.club------密码：Uwq358127  
-![Shadowrocket](https://user-images.githubusercontent.com/98630054/183798534-b04fe410-6025-48a4-b932-9b8c42bb906f.png)
+
 
 ![WechatIMG203](https://user-images.githubusercontent.com/98630054/183799475-c40c2858-dc81-4bfc-9031-7f351fbce6ea.jpeg)
 
 
-https://xintaifree.cf/
+新泰科技小店独享帐号：https://xintaifree.cf/
+
+
+
+![rockets_PNG101054](https://user-images.githubusercontent.com/98630054/183807539-78936e61-d77e-4b09-9746-fd582a22ff8b.png)
 
 
 白嫖节点群：https://t.me/kejixm123
