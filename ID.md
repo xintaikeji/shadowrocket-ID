@@ -10,9 +10,8 @@
 
 新泰科技小店独享帐号：https://xintaifree.cf/
 
+<img width="520" alt="WeChat3aa4b7ab6ccf316b1ff54f0b47cde480" src="https://user-images.githubusercontent.com/98630054/183807646-72bbb676-d73d-446a-9112-92a01e5ecf27.png">
 
-
-![rockets_PNG101054](https://user-images.githubusercontent.com/98630054/183807539-78936e61-d77e-4b09-9746-fd582a22ff8b.png)
 
 
 白嫖节点群：https://t.me/kejixm123
