@@ -1,5 +1,7 @@
 # ![Shadowrocket](https://user-images.githubusercontent.com/98630054/183797510-e64b45a5-dbda-49cf-97ff-d14338f4d33d.png)
-共享账号：karl_Dav@hotmail.com密码Ser912037
+共享账号：shadows03@appleshare.club密码Adx485920
+账号：paintball_kitten@hotmail.com密码Sog638251
+
 
 
 
